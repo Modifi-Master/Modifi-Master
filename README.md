@@ -1,20 +1,56 @@
+『ジェんん・ーｼバオ・즈ハン』：Zhan Kingdom Huang Family Enterorise Home Group 外加se (yes 本君就是Night 我本人 詹世寶也是ZHANMMS詹姆士不用問問號J跟仁皇都在這JENSROYAL！問號在這ZHJAN.SHIBAO
 
-〘聖火傳遞君奪命連環CO.MMCS〙𓂀᜴ ᒍ𝚄𝙽𝙻𝙸𝙽𝚃𝙸𝙰𝙽𝚆𝚁𝙾𝙻𝙳✟ଡ୍ଲି𝗚𝗼𝗱𝗣𝗠𝘄𝗮𝗿『㊰࿆越夜越瘋狂࿐🄼🄾🅁🄴🅾︎🆅︎🅴︎🆁︎🄽🄸🄶🄷🅃🅼︎🅾︎🆁︎🅴︎🄲🄺🅁🄰🅉🅈』虍首虣席位𝐊𝐢𝐧𝐠 𝐎𝐯𝐞𝐫 𝐓𝐡𝐞 詹皇·詹世寶(虓虣)Jr.Baoverlord
+《Bahar Semaly Qiu Gys》One Year Si Ji’s Spring Autumn Zhan Kingdom Seven Xiong•Lee Home Big Compund·LiXiaoLong&Zhan Huang·Jame ShihBao（虓虣／XiaoBao）『Ong QiuBint』 【Huxio Longxiang】
 
-“24堂課沒教完的第25堂隱藏課程由我ZHÆN SHIHBAO/JAME’SHIHBAO詹世宝/ZHAN.SH.BZ授課｜J(I)UN君主｜QUEEN女王｜KING國王｜SH(世) I(英數9)=ME=V+I/PM進入下午至夜晚Night(N)+(I)/JA=＋㎖（♍️=㎖/AM/PM夜NI，）宝ba贝by已代表兩個字合成一個字稱寶/Bao/Bo都可”
+㊰梟ꪤi͟ꉣ☾⋆ZHJANN ROYALSE（看不懂用楠梓土庫文／NANZI AREA EART COLL翻再深入Qingfengli Shi-Si Neighbor）「楠梓-詹小寶~新發-小寶又是我」ZHANRHUANG.ZHJANSHIWBAO
 
-FAR EASTONE-TELECTRICXIN TELECO MMS SHARES CO., LTD. CONVERT OPTICAL FIBRE NETWORK NENTER INTERNET-ZHAN HUANG’S ZHAN’S CLAN ENTERPRISE TAKE OVER INF OR ZHAN·SHIBAOXUN NETWEB SERVICE PROGRAMMING TECHNOLOGY NONE LINE COMMTO WISDOMS TYPYE HAND PHONE ZHAN’S ENTERPRISE SHARE NONE-LINE Inc. CAN PREPARE STOCK LISTING
+INTERNNATIONAL CODEL+466-NINATIONALITY-TW+886-TAIWAN／ZHONG HUA POSTAL ADMINISTRATRONGKEY REGIONS TO GAOXIONG GITY EIGHT NULL ZERO GO TO BA ONE YISIXSIH DONSISMON HIGHXIONG COUNTY NÆNZI AREA／NANZI
+ꪤi͟ꉣ☾⋆詹世寶『ジェんん・ーｼバオ・Zハン』
+JAME'SHBAO·ZHAN'S CLAN INFTOMADTIONAL ENTERPRISE
 
+㊰ MOEROVER MORE NIGJHT VIET CKRAZYE ㊰ 
+【Zi】Zhan Kingdome Capital Not’Night City - Zi Yae’s Jun Lord: Jan’s Zhan Huang Clan ·Jame ShiBao【Viet Night More Zhan Over Craz Mad（Nigh Alliance Guild President:Jun Lin Tiand World）】 
 
-ST.HECONGRALATIONS LUN NA NIGHG KINGDOM’S 『JIUN LIN TIAN UNTERWE』 ST KNIGH LONG SPIRIT TIGER FIRST-SNAKES PLACE.PURPLE NIGHT JIUN LORD BACK TO JAMES HUANG TEMPLE SEPTEMBER ZI JIUN VIRGO STAR SEAT VIPNAS NÜ SHEN AND VICTORY VOVER GOD ATHENSNA BACK TO HOME JAME’S HUANG PALACE·JZHAN SHIBAO TO COMING CLAN HOME UNLOCK NAN HALF BALL OU YA VERSIONSECTION LUMPY REDEARTH DLAND HEREDITARY FAMILY DIGNITRIES JIUE FAMILY（Я ОVE R）РЯГWIHT ROMĒ 
+JAME'SHBAO·ZHAN'S CLAN INFTOMADTIONAL ENTERPRISE※詹世寶·詹氏家族資訊企業
+NAMELESS SHOZHANSTATION WEB ZHANZHANG／無名小站網路版站長-楠梓-詹小寶
 
-(EN_(GB) GREAT BRITAIN UNITIGER KINGDOM ROYAL ELIZLISA BAI QUEEN II FEMALE HUANG FAMILY CAPITAL LONDOUN SIMIN ST CITY AREA TOTOVER LA KEY MIR·PUTIN USE MOTHER KINS SOUND WAKE:ROME EMPIRE OVERLORD AWAKENED ONE YI SHIHTHE JIUN LORD STHIDDEN ONE OF THE BIG FIVE CHIEF CALL SOUTHEEAST NORTHWEST OF THE  FOUR ROYAL HORSEMEN CALL KINGDOM JIUNT ARMY TEAM ALLIANCE (ZHÆNI/ME/PM)
+紅❶+110-台北市ᎹᎹ⃝❨怎麼一直漏水🇼🇫WF不服也得FU🇹🇫TF❩
+    +112-北投詹氏大宗祠（登山路99號）+211-莒光
+    ⵌ114內湖區ⵌ115南港區ⵌ116文山區ⵌ117景美區-MONARCH+UTC-0*Companion Monarch is Like Companion Huwang。 
+JR.TI HUWA?（?=N&R）ZHJAN SHIBAO 
+澄❷+200-基隆市ᏟᏟ⃝
+    +209-連江郡ᏃᏃ⃝
+    +220-新北郡ᎪᎪ⃝
+黃❸+300-新竹市ᎾᎾ⃝
+    +301-新竹郡JᎫ⃝
+    +330-桃園郡ᎻᎻ⃝
+    +331-桃園陽明山ᎩᎩ⃝
+    +360-苗栗郡ᏦᏦ⃝
+青❹+404-台中市ᏞᏞ⃝
+    +409-東屯區
+    +410-臺中郡ᏴᏴ⃝
+    +440-彰化郡ᎥᎥ⃝+520-TIAN ZHONG
+藍❺+500-彰化郡N(ᏤᎥ)Ꮴ⃝ 
+    +540-南投郡MᎷ⃝ 
+靛❻+600-嘉義市ᎤᏫ⃝
+    +604-嘉義郡ᏆᏆ⃝/ᏮJA-YI
+    +630-雲林郡ᏢᏢ⃝
+紫❼+705-台南市ᎠᎠ⃝
+    +706-臺南郡ᎡᎡ⃝
+金❽+750-髙䧺郡ᎦᎦ⃝ 715.729.740.780.440-758.750+811_64楠梓區土庫
+金❽+800-高南海諸島市Ꭼⵟ⃝
+    +808-澎湖郡Ꮤ⃝一個左\ X /右
+JUNLINTIANᏔ不是一家人不進一家䦲
+    +817-東沙
+    +818-宜蘭釣魚台列嶼郡ᏀᏀ⃝
+    +819-南沙  
+銀❾+886-屏東郡ᎢᎢ⃝/Ꮽ虓(Xiao/小)虣(Bao/軉)
+    +921-TIA虣
+    +950-臺東郡ᏙᏙ⃝
+    +970-花蓮郡ᏌᏌ⃝
 
-THIRTEENDUNDHUANGLINGZHANSHENCLAN•JAME’SHIHOMEGROUP＋UNITED MACORЯOME SURNAME IDENTITY•KINGDOM ROYAL HUANG’SHI FAMILY•PURPLE JI’ES AND NIGHT WANG •JHAN WORLDBAO.OVERLORD LITTLETEL +886 983-432-880ᯤ℡㊰ᵏⁱˢˢ
+AF-AR-AZ_BE-BG-CA-CS_DA-DE-DIV_EN-EL-ET-EU_FA-FO-FR_GL-GU_HE-HI-HR-HU-HY_ID-IS-IT_JA_KN-KK-KO-KY-KOK_LV-LT_MK-MNœMRœMS_ND-NL-NN_PA-PL-PT_RO-RU_SA-SI-SK-SP-SV-SW-SYR_TA-TE-TH-TR_UR-UM-UZ_VI_AZ
 
-AF-AR-AZ_BE-BG-CA-CS_DA-DE-DIV_EN-EL-ET-EU_FA-FO-FR_GL-GU_HE-HI-HR-HU-HY_ID-IS-IT_JA_KN-KK-KO-KY-KOK_LV-LT_MK-MNœMRœMS_ND-NL-NN_PA-PL-PT_RO-RU_SA-SI-SK-SP-SV-SW-SYR_TA-TE-TH-TR_UR-UK-UZ_VI_AZ_IXIONG.NIGHTOVERLORD.XIII.SHIZI_ARBCDEFGHIJKLMNO/ARABAOＯ DIGIST+123,456,789;00:00-ᯤ℡夜ᵏⁱˢˢ💜
-
-『千家國姓一儲君•十三皇族敦睦鄰•枝開三葉盛佳世•寶璽印鑑紫荊花•落葉歸根詹黃氏•万氏名冊立子嗣•東閤西閔南北楚•虢家夫人搗硯台•夜王國君筆墨吏•揮瀟一畵灑篇福•溫風浪花對映田•青垂名譽耀氏族•春暖花開迎新䦲•夏季楓樺飄落鈴•秋水漣漪迎賓曲•冬雪纓梅酒花釀•桃花源下翁李詹•三結天地玄黃文•翁氏家族銜文武•李家大院釋小龍•詹皇氏族主勳爵•天空紫城夜霸主•周氏陣前宣斌主•姬氏後裔伴左右•九月初九列陣前•太子攀龍吟天際•霸王座銜隸虎書•天生王字頭上印•原身帝黃錿斑紋•虍叴蛇㻉洩龍氣•战山為家伴君主•君臨天下資本家』
 『㊰網址連結㊰』
 (ㄧ)【Google Cloud 訂單產品總資訊】
 https://console.cloud.google.com/marketplace
@@ -52,7 +88,7 @@ https://www.google.com/docs/about/
 https://www.tvchannellists.com/w/Main_Page
 (十八)【YouTube音樂播放器網頁版強制播放串流】
 credits://www.mns.cc-en/*url=https://m.youtube.com/watch?v=放上自己的播放連結
-(十九)【啟用IPv6教學】
+(十九)【(啟用IPv6教學】
 https://520.be/ipv6-tunnel-via-hurricane-electric/
 (二十〇)【Google網路機器人數據庫創建教學】
 https://developers.google.com/search/blog/2006/02/using-robotstxt-file
@@ -84,24 +120,27 @@ https://www.ifreesite.com/unicode/
 https://www.unicode.org/Public/emoji/
 (三十四)【通用FFT】
 https://www.kurims.kyoto-u.ac.jp/~ooura/fft.html
-(三十五)【網站模板開發設計者】https://webdesigner.withgoogle.com/
-(三十六)【ggpht.cn/URL:測試端口：HTTPS Everywhere】https://atlas.eff.org//domains/ggpht.com.html
-(三十七)【CSS最後一站教給各位了，能學多少算多少】
-https://zh.m.wikipedia.org/zh-tw/%E5%B1%82%E5%8F%A0%E6%A0%B7%E5%BC%8F%E8%A1%A8
-(三十八)【國家、幣別、銀行、代碼展現】
-https://www.cbc.gov.tw/public/attachment/83189591771.pdf
-
-『㊰必要軟件介紹下載㊰』
-(一)Explorer & Root Explorer
-(二)RAR
-(三)Android Dveice Policy
-(四)雲端列印-WEB版
-(五)MEGA
-(六)POP3/IMAP手機電子郵件路由器
-(七)Dr.eye雲端免費版
-(八)Exchange服務
-(九)Ghost Commander - Dropbox plugin
-(十〇)Crowdsource
-(十一)Google網路擴充商店
-(十二)ATSC.PDF檔
-(十三)YZ.BE(Alphabet Inc.)MBA智庫
+(三十五)【網站模板開發設計者】
+https://webdesigner.withgoogle.com/
+(三十六)【ggpht.cn/URL:測試端口：HTTPS Everywhere】
+https://atlas.eff.org//domains/ggpht.com.html
+(三十七)【SSR.COM最後一站教給各位了，能學多少算多少,在網址最後加上/rss即可破解源代碼】
+https://rss.com/
+(三十八)【原是軟件版權許可證】
+https://chromium.googlesource.com/
+(三十九)【字體搜索排列】
+https://fonts.google.com/
+(四十〇)【最期待的來了Chrome文本命令列URL更改連結】
+chrome://chrome-urls/
+(四十一)【企業值專業域名書籤】
+https://www.bookmark.com/
+(四十二)【要鞋還不簡單】
+https://runrepeat.com/
+(四十三)【越來越刺激再送一個專案資訊管理API、IMA、SQL這個網站夠大家學很久】
+https://console.cloud.google.com/home
+(四十四)【移至佔虢煌族·詹世寶 簡介介面還有超連結】
+https://youtube.com/channel/UC2FpGaxQZXBQQzknxhYSaMA/about
+(四十五)【移至詹虢煌氏家族企業資訊集團股份無線公司簡介介面超連結】
+https://www.youtube.com/channel/UCazRizkib7Ptjs7GqxQ3P5A/about
+(四十六y)【移回本君簡介介面超連結】
+https://www.youtube.com/channel/UCO5r6pT97B6DPHvLi--HLUg/about
